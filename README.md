@@ -41,13 +41,8 @@ AMIN MOHAMMED.S GATEWAY DELOREAN
 ![1000008890](https://github.com/user-attachments/assets/d85ecd37-e0e6-40bf-a7f3-84f69229f055)
 ![1000008889](https://github.com/user-attachments/assets/9ab7a247-413a-466e-b730-a7fa149042c7)
 ![1000008886](https://github.com/user-attachments/assets/fecdfde2-9b10-44c8-95e5-cf386af7507f)
-![1000008904](https://github.com/user-attachments/assets/5db581eb-ac25-45e3-a13c-88c34af2b627)
-![1000008905](https://github.com/user-attachments/assets/b3985fc2-81a5-4377-b466-b2ef4ef7b4d2)
-![1000008906](https://github.com/user-attachments/assets/2809b28a-ba85-4494-a3df-96b529953726)
-![1000008907](https://github.com/user-attachments/assets/38a3b1b8-4909-46a9-8471-6412b4acfe0d)
-![1000008908](https://github.com/user-attachments/assets/d34583bc-0fae-413a-9dab-087e5233c81d)
-![1000008909](https://github.com/user-attachments/assets/d276ae03-3dee-46b9-9581-7d3a5ac85234)
-![1000008910](https://github.com/user-attachments/assets/01ac4a94-0252-4f89-a5c3-7164cba36270)
+
+
 ![1000008963](https://github.com/user-attachments/assets/2bc96bb3-d77c-455d-a45d-66c71090e904)
 ![1000008960](https://github.com/user-attachments/assets/40ffbde5-6775-4ff8-b2a7-12d834967954)
 ![1000008961](https://github.com/user-attachments/assets/4d12504e-26a8-4718-81ee-2106563e94c4)
