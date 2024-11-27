@@ -30,7 +30,7 @@ AMIN MOHAMMED.S GATEWAY DELOREAN
 ![1000007784](https://github.com/user-attachments/assets/93c1159f-a83d-4566-a8b6-441e3e488f9a)
 ![1000007932](https://github.com/user-attachments/assets/247092e4-30b3-47ca-8c3a-3efde9b419d3)
 ![1000007922](https://github.com/user-attachments/assets/0edd7d3c-5bfa-4d3f-bce0-4f355740c464)
-![1000007971](https://github.com/user-attachments/assets/da07318d-5e82-4528-9c54-e523cbe15fdf)
+
 ![1000008368](https://github.com/user-attachments/assets/b2237189-0500-49ae-a7a0-07e5d1870390)
 ![1000008367](https://github.com/user-attachments/assets/d29dece6-f111-4f6b-8ce5-9c5316b34c35)
 ![1000008445](https://github.com/user-attachments/assets/e3594e6f-3bb6-4667-8fe6-985cd8dbdb03)
